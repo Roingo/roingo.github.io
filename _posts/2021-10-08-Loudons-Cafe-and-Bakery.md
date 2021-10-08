@@ -11,7 +11,7 @@ Went to **Loudons** for a study session. Was greeted by **Lori** who was lovely 
 **Jen** brought me orange juice and water. This moved the day from 121/15 to 122/15 <br>
 **Tom** was a sexy beast all the time<br>
 **Lisa** Is the best SS officer **Loudons** has ever had<br>
-**Kween Kinza** Rocked the Host stand
+**Kween Kinza** Rocked the Host stand <br>
 **Doro Doro** Judged me correctly for orange juice
 Food 5/5 <br>
 Service 111/5 <br>
