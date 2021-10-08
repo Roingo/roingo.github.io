@@ -12,7 +12,7 @@ Went to **Loudons** for a study session. Was greeted by **Lori** who was lovely 
 **Tom** was a sexy beast all the time<br>
 **Lisa** Is the best SS officer **Loudons** has ever had<br>
 **Kween Kinza** Rocked the Host stand <br>
-**Doro Doro** Judged me correctly for orange juice
+**Doro Doro** Judged me correctly for orange juice <br>
 Food 5/5 <br>
 Service 111/5 <br>
 Overall Vibes 5/5<br>
