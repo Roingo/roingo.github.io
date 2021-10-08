@@ -4,6 +4,7 @@ title: "Loudons Study Day "
 date: 2021-10-08
 ---
 
+<img src="https://resizer.otstatic.com/v2/photos/wide-huge/1/24005181.jpg" alt="A shithole"><br>
 Went to **Loudons** for a study session. Was greeted by **Lori** who was lovely and very friendly, she took my order and delivered my drinks. <br>
 **Chris** (The Owner) delivered my food and it was spectacular.<br>
 10/10 Would come to Loudons again.<br>
